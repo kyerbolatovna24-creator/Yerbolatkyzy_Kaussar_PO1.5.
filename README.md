@@ -1,1 +1,0 @@
-# Yerbolatkyzy_Kaussar_PO1.5.
